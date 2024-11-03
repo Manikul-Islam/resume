@@ -33,7 +33,7 @@ Assign Power Limited, Dhaka, Bangladesh
 
 **Intern - Mechatronics Engineer**  
 Toma Construction & Co. Ltd, Dhaka, Bangladesh  
-*May - August 2016*  
+*May 2016- August 2016*  
 - Gained hands-on experience in mechatronic systems design and implementation.
 - Contributed to project planning and execution, ensuring timely delivery of engineering solutions.
 
